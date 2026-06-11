@@ -232,3 +232,6 @@ If you found this project useful:
 
 Feel free to connect on:
 
+ 🔗 GitHub: https://github.com/Raviteja0710  
+ 🔗 LinkedIn Profile: https://www.linkedin.com/in/ch-ravi-teja-b00139367/
+
